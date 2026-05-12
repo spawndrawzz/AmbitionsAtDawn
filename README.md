@@ -2,7 +2,7 @@
 
 
 
-<p align="center" > font=BoldSerif&size=25&duration=2000&pause=10000&color=0444C4&center=true&width=435&lines=%E2%80%98 PEGASUS+DEVICE!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#C42304}  HISTORY HAS ITS EYES ON YOU. }}$
 <p align="center">${\textsf{\color{#C42304}  Alexander Hamilton , , ♡ }}$
 
 <p align="center">${\textsf{\color{#C47704}  DOUBLES DNI .  }}$
