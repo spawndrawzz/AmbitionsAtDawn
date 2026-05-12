@@ -4,19 +4,18 @@
 
 <p align="left">${\textsf{\color{#e7c355}  HISTORY HAS ITS EYES ON YOU. }}$
 <p align="center">${\textsf{\color{#eab652}  Alexander Hamilton , , ♡ }}$
-
+***
 <p align="center">${\textsf{\color{#e6af56}  DOUBLES DNI .  }}$
 <p align="center">${\textsf{\color{#e2a55a}  HAMILTON FANS INT , }}$
 <p align="center">${\textsf{\color{#de9a5e}  4SAKEN + DW + Odysseus/Hamiliton shippers; DNIUID/UF . }}$
 <p align="center">${\textsf{\color{#d89064}  idrc who ints nonetheless . }}$
 <p align="center">${\textsf{\color{#db7c61}  IF I DISLIKE YOU / DO NOT TRUST YOU, DON'T TAKE IT SO PERSONAL - I DON'T TRUST A LOT OF PEOPLE. }}$
 
-***
 <p align="center">${\textsf{\color{#df675d} < Jamilton, Lams, Hamliza 3 }}$
    </a>
 </p>
-<img width="1092" height="211" alt="image" src="https://media.tenor.com/ZOXoAc4qb-wAAAAi/rainbow-dash-mlp.gif" />
-<img width="1170" height="246" alt="image" src="https://media1.tenor.com/m/ENAXRJlMxDEAAAAd/pegasus-device-rainbow-factory.gif" />
+<img width="1092" height="211" alt="image" src="https://media1.tenor.com/m/0jNFBhXfCGEAAAAd/hamilton-thomas-jefferson.gif" />
+<img width="1170" height="246" alt="image" src="https://media1.tenor.com/m/wqMr4Ip2CEEAAAAC/hamilton-reading.gif" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/f8/0b/8f/f80b8f121562595896d3eaefee4fa549.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
 <img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/a8/5f/93/a85f9329448265e53818b472452bd6a0.jpg" />
