@@ -16,7 +16,7 @@
 <p align="center">${\textsf{\color{#df675d} < Richie Tozier[IT] + Will Byers[Stranger Things] 3 }}$
    </a>
 </p>
-<img width="500" height="211" alt="image" src="https://tenor.com/view/tvguifs-will-byers-will-byers-st-gif-12258087586993774821" />
+<img width="500" height="211" alt="image" src="https://media1.tenor.com/m/qh15tthjoOUAAAAd/tvguifs-will.gif" />
 <img width="362" height="246" alt="image" src="https://media1.tenor.com/m/l2UUaavsbMIAAAAd/richie-richie-tozier.gif" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/0d/7f/b1/0d7fb119b7f822dee813d1438ccb53cd.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
