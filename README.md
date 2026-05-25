@@ -1,19 +1,19 @@
-<img width="1024" height="768" alt="image" src="https://x.com/heikkkii/status/2010473606225293419/photo/1" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/5d/76/5a/5d765a1a064fc2a1f4efeb77797bc2b3.jpg" />
 
 
 
-<p align="left">${\textsf{\color{#e7c355}  HISTORY HAS ITS EYES ON YOU. }}$
-<p align="center">${\textsf{\color{#eab652}  Alexander Hamilton , , ♡ }}$
+<p align="left">${\textsf{\color{#e7c355}  Sometimes, when you're.. different, you feel like a mistake. }}$
+<p align="center">${\textsf{\color{#eab652}  Will The Wise , , ♡ }}$
    
 ***
    
-<p align="center">${\textsf{\color{#e6af56}  DNI DOUBLE + DO NOT TALK ABOUT MY DEATH .  }}$
-<p align="center">${\textsf{\color{#e2a55a}  HAMILTON FANS INT , }}$
+<p align="center">${\textsf{\color{#e6af56}  DNI DOUBLES.  }}$
+<p align="center">${\textsf{\color{#e2a55a}  Byler/mileven/bychance/ryers/borill int ! , }}$
 <p align="center">${\textsf{\color{#de9a5e}  4SAKEN + DW + Odysseus/Hamiliton shippers; DNIUID/UF . }}$
 <p align="center">${\textsf{\color{#d89064}  idrc who ints nonetheless . }}$
 <p align="center">${\textsf{\color{#db7c61}  IF I DISLIKE YOU / DO NOT TRUST YOU, DON'T TAKE IT SO PERSONAL - I DON'T TRUST A LOT OF PEOPLE. }}$
 
-<p align="center">${\textsf{\color{#df675d} < Jamilton, Lams, Hamliza 3 }}$
+<p align="center">${\textsf{\color{#df675d} < Richie Tozier[IT] + Will Byers[Stranger Things] 3 }}$
    </a>
 </p>
 <img width="500" height="211" alt="image" src="https://media1.tenor.com/m/0jNFBhXfCGEAAAAd/hamilton-thomas-jefferson.gif" />
