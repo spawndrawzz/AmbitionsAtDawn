@@ -1,23 +1,23 @@
-<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/5d/76/5a/5d765a1a064fc2a1f4efeb77797bc2b3.jpg" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/91/1f/71/911f719cc41c4d5604bbd52412628b2c.jpg" />
 
 
 
-<p align="left">${\textsf{\color{#e7c355}  Sometimes, when you're.. different, you feel like a mistake. }}$
-<p align="center">${\textsf{\color{#eab652}  Will The Wise , , ♡ }}$
+<p align="left">${\textsf{\color{#D9583F}  YES I ACTUALLY PLAY 4S. IM NOT A LARP SOBS.. I main Nyan Cat ! Elliot:33  }}$
+<p align="center">${\textsf{\color{#D96D3F}  Elle + Ellie , , ♡ }}$
    
 ***
    
-<p align="center">${\textsf{\color{#e6af56}  DNI DOUBLES.  }}$
-<p align="center">${\textsf{\color{#e2a55a}  Byler/mileven/bychance/ryers/borill int ! , }}$
-<p align="center">${\textsf{\color{#de9a5e}  4SAKEN + DW + Odysseus/Hamiliton shippers; DNIUID/UF . }}$
-<p align="center">${\textsf{\color{#d89064}  idrc who ints nonetheless . }}$
-<p align="center">${\textsf{\color{#db7c61}  IF I DISLIKE YOU / DO NOT TRUST YOU, DON'T TAKE IT SO PERSONAL - I DON'T TRUST A LOT OF PEOPLE. }}$
+<p align="center">${\textsf{\color{#D97F3F}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
+<p align="center">${\textsf{\color{#D9943F}  < PIZZABURGER 3 , }}$
+<p align="center">${\textsf{\color{#D99E3F}  DSMP/QSMP; IWEC ,, DW; IWC . }}$
+<p align="center">${\textsf{\color{#D9A33F}  idrc who ints nonetheless . }}$
+<p align="center">${\textsf{\color{#D9B83F}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
-<p align="center">${\textsf{\color{#df675d} < Richie Tozier[IT] + Will Byers[Stranger Things] 3 }}$
+<p align="center">${\textsf{\color{#D9BF3F} Im sorry, but I'm not a fan of paycheck:((( }}$
    </a>
 </p>
-<img width="500" height="211" alt="image" src="https://media1.tenor.com/m/qh15tthjoOUAAAAd/tvguifs-will.gif" />
-<img width="362" height="246" alt="image" src="https://media1.tenor.com/m/l2UUaavsbMIAAAAd/richie-richie-tozier.gif" />
+<img width="500" height="211" alt="image" src="https://media1.tenor.com/m/uExlVsA-zW4AAAAd/forsaken-roblox.gif" />
+<img width="362" height="246" alt="image" src="https://media1.tenor.com/m/unGQuOxd9jUAAAAC/elliot-elliot-forsaken.gif" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/0d/7f/b1/0d7fb119b7f822dee813d1438ccb53cd.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
 <img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/e0/a3/eb/e0a3eb04eb0a828c2ad70a82a271323d.jpg" />
