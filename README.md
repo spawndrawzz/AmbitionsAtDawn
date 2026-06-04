@@ -8,7 +8,7 @@
 ***
    
 <p align="center">${\textsf{\color{#D97F3F}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
-<p align="center">${\textsf{\color{#D9943F}  "[when your bf sacrifices you] whispers: listen to ur alpha" & “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance ,, my bf @edmunson
+<p align="center">${\textsf{\color{#D9943F}  "[when your bf sacrifices you] whispers: listen to ur alpha" + “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance ,, my bf @edmunson
   }}$
 <p align="center">${\textsf{\color{#D99E3F}  DSMP/QSMP; IWEC ,, DW; IWC . }}$
 <p align="center">${\textsf{\color{#D9A33F}  idrc who ints nonetheless . }}$
