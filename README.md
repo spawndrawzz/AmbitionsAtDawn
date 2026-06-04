@@ -8,12 +8,13 @@
 ***
    
 <p align="center">${\textsf{\color{#D97F3F}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
-<p align="center">${\textsf{\color{#D9943F}  < PIZZABURGER 3 , }}$
+<p align="center">${\textsf{\color{#D9943F}  [when your bf sacrifices you] whispers: listen to ur alpha
+  }}$
 <p align="center">${\textsf{\color{#D99E3F}  DSMP/QSMP; IWEC ,, DW; IWC . }}$
 <p align="center">${\textsf{\color{#D9A33F}  idrc who ints nonetheless . }}$
 <p align="center">${\textsf{\color{#D9B83F}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
-<p align="center">${\textsf{\color{#D9BF3F} Im sorry, but I'm not a fan of paycheck:((( }}$
+<p align="center">${\textsf{\color{#D9BF3F} < PIZZABURGER + AZURETIME + DOUBLEFEDORA 3 }}$
    </a>
 </p>
 <img width="500" height="211" alt="image" src="https://media1.tenor.com/m/uExlVsA-zW4AAAAd/forsaken-roblox.gif" />
