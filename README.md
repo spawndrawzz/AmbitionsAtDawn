@@ -15,7 +15,7 @@
 <p align="center">${\textsf{\color{#D9A33F}  idrc who ints nonetheless . }}$
 <p align="center">${\textsf{\color{#D9B83F}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
-<p align="center">${\textsf{\color{#D9BF3F} Multishipper . I ship a lot so we may share ships! Just ask^__^ }}$
+<p align="center">${\textsf{\color{#D9BF3F} Multishipper . I ship a lot so we may share ships! Just ask❣️ }}$
    </a>
 </p>
 <img width="500" height="211" alt="image" src="https://media1.tenor.com/m/uExlVsA-zW4AAAAd/forsaken-roblox.gif" />
