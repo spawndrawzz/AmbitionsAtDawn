@@ -9,10 +9,11 @@
 ***
    
 <p align="center">${\textsf{\color{#D97F3F}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
-<p align="center">${\textsf{\color{#D9943F}  "[when your bf sacrifices you] whispers: listen to ur alpha" + “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" "[bluushart “ fndmdni] HELLO R U RIPPING MY UTERUSSY OUT" from my bf, @edmunson
-  }}$
+<p align="center">${\textsf{\color{#D9943F}  "[when your bf sacrifices you] whispers: listen to ur alpha" 
+  <p align="center">${\textsf{\color{#D9943F}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" "[bluushart “ fndmdni] HELLO R U RIPPING MY UTERUSSY OUT" from my bf, @edmunson
+
 <p align="center">${\textsf{\color{#D99E3F}  DSMP/QSMP + 4SAKEN; IWEC ,, DW; IWC . }}$
-<p align="center">${\textsf{\color{#D9A33F}  007N7/C00LK1D DNI . }}$
+<p align="center">${\textsf{\color{#D9A33F}  007N7/C00LK1D + HH/HB DNI . }}$
 <p align="center">${\textsf{\color{#D9B83F}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
 <p align="center">${\textsf{\color{#D9BF3F} Bluudud yume :'))) }}$
