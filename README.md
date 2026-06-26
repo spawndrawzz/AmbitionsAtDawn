@@ -2,24 +2,24 @@
 
 
 
-<p align="left">${\textsf{\color{#D9583F}  
+<p align="left">${\textsf{\color{#f2f6ff}  
    Two Time / Broken Spawn / Booker irl. }}$
-<p align="center">${\textsf{\color{#D96D3F}  Spawn / Time / Elle }}$
+<p align="center">${\textsf{\color{#dfe6f5}  Spawn / Time / Elle }}$
    
 ***
    
-<p align="center">${\textsf{\color{#D97F3F}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
-<p align="center">${\textsf{\color{#D9943F}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
-  <p align="center">${\textsf{\color{#D9943F}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
+<p align="center">${\textsf{\color{#c8d1e6}  DNI DOUBLES + DO NOT SEXUALIZE US PLEASE.  }}$
+<p align="center">${\textsf{\color{#b8bdde}  "[when your bf sacrifices you] whispers: listen to ur alpha" }}$
+  <p align="center">${\textsf{\color{#a9afd1}  “you’re the Juliet to my romeo kitten whiskers…. Grrrr… growls to assert my alpha dominance" from my bf, @edmunson }}$
 
-<p align="center">${\textsf{\color{#D99E3F}  DSMP/QSMP + 4SAKEN; IWEC ,, DW; IWC . }}$
-<p align="center">${\textsf{\color{#D9A33F}  007N7/C00LK1D + HH/HB DNI . }}$
-<p align="center">${\textsf{\color{#D9B83F}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
+<p align="center">${\textsf{\color{#9ba1c9}  DSMP/QSMP + 4SAKEN; IWEC ,, DW; IWC . }}$
+<p align="center">${\textsf{\color{#8c92bf}  007N7/C00LK1D + HH/HB DNI . }}$
+<p align="center">${\textsf{\color{#8088bd}  If we distrust you, please recognize we have a lot of PTSD we're still recovering from. }}$
 
-<p align="center">${\textsf{\color{#D9BF3F} Bluudud yume :'))) }}$
+<p align="center">${\textsf{\color{#727bb5} Bluudud yume :'))) }}$
    </a>
 </p>
-<img width="500" height="211" alt="image" src="https://i.pinimg.com/736x/f2/c8/5c/f2c85c4607bd136c1bbfd7330f43d4ea.jpg" />
+<img width="1024" height="768" alt="image" src="https://i.pinimg.com/736x/f2/c8/5c/f2c85c4607bd136c1bbfd7330f43d4ea.jpg" />
 <img width="1196" height="246" alt="image" src="https://i.pinimg.com/1200x/0d/7f/b1/0d7fb119b7f822dee813d1438ccb53cd.jpg" />
 <img width="1080" height="228" alt="image" src="https://i.pinimg.com/1200x/97/fc/e4/97fce4916fcb0adae7e064b16082fd97.jpg" />
 <img width="1170" height="231" alt="image" src="https://i.pinimg.com/1200x/e0/a3/eb/e0a3eb04eb0a828c2ad70a82a271323d.jpg" />
